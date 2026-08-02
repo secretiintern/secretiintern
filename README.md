@@ -7,17 +7,17 @@
   
  　<img width="320" height="221" alt="image" src="https://github.com/user-attachments/assets/fe67a295-fbae-4a0f-ad3f-c6872e02cacd" />
 
-hi
+　 　 　　𓆩　　magne　⸝　agent　　𓆪
 
-a
+　　　　　　　　
 
-a
+　　　　　　　　
 
-a
+　　　　　　　　
+this is a wip.
+　　　　　　　　
 
-a
-
-a
+　　　　　　　　
 
 
 <br clear="left" />
